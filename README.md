@@ -110,3 +110,11 @@ Atenea Toolkit unifies 3 independent utility tools into a single sidebar interfa
 © 2026 **Atenea Store Tools**
 
 </div>
+Discord: https://discord.gg/mam8Nmg49d
+
+**IMAGES:**
+
+![1](https://i.imgur.com/YkWM6W2.png)
+![2](https://i.imgur.com/risTGGD.png)
+![3](https://i.imgur.com/7w7XdIO.png)
+![4](https://i.imgur.com/kvA37p2.png)
